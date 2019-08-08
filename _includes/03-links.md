@@ -1,1 +1,1 @@
-[GitHub Profile](https://github.com/ShootingTurtle)
+[GitHub Profile](https://bulbapedia.bulbagarden.net/wiki/Statistic#Evasion)
